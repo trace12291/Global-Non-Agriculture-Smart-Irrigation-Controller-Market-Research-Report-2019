@@ -1,0 +1,2 @@
+# Global-Non-Agriculture-Smart-Irrigation-Controller-Market-Research-Report-2019
+This report focuses on Non-Agriculture Smart Irrigation Controller volume and value at global level, regional level and company level. From a global perspective, this report represents overall Non-Agriculture Smart Irrigation Controller market size by analyzing historical data and future prospect. Regionally, this report focuses on several key regions: North America, Europe, China and Japan.
